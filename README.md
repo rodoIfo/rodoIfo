@@ -14,12 +14,12 @@ please don't copy my ponies nor take any inspo off them ^_^
 </p>
 
 <p align="center">
-<a href="https://c-ai-ne.straw.page"/>
+<a href="https://rodolfo.straw.page"/>
 — strawpage —
 </a>
  
 <p align="center">
-<a href="https://pronouns.cc/@ringmaster"/>
+<a href="https://pronouns.cc/@rodolfo"/>
 — pronouns.cc —
 </a>
 
