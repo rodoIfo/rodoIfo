@@ -3,9 +3,8 @@
  <img src="https://i.postimg.cc/nzBnrG72/daa89a0baae603f52418ebfb66caa94c.jpg" width="500" height="400"/>
  </a>
 
-<p align="center">
-maikol or jax
-</p>
+
+
 <p align="center">
 formerly runningtheshow
 </p>
