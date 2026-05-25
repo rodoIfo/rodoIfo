@@ -1,6 +1,6 @@
 <p align="center">
  <a href="https://github.com/rodoIfo"/>
- <img src="https://i.postimg.cc/nzBnrG72/daa89a0baae603f52418ebfb66caa94c.jpg" width="500" height="400"/>
+ <img src="https://i.postimg.cc/qqNZ5V9j/Untitled411-20260525150433.png" />
  </a>
 
 
