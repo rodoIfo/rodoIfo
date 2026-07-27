@@ -17,7 +17,7 @@ please don't copy my ponies nor take any inspo off them ^_^
 </p>
 
 <p align="center">
-<a href="https://rodolfo.straw.page"/>
+<a href="https://solverwitch.straw.page/"/>
 — strawpage —
 </a>
  
