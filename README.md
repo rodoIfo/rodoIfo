@@ -38,7 +38,7 @@ please don't copy my ponies nor take any inspo off them ^_^
 
 <p align="center">
   <a href="https://github.com/komarev">
-    <img src="https://komarev.com/ghpvc/?username=jaxtoy&color=bda3c7&style=flat-square&label=fans">
+    <img src="https://komarev.com/ghpvc/?username=jaxtoy&color=4E25FF&style=flat-square&label=fans">
   </a>
 </p>
 
