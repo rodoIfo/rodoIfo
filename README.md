@@ -1,12 +1,14 @@
 <p align="center">
  <a href="https://github.com/rodoIfo"/>
- <img src="https://i.postimg.cc/nzK4ngLQ/320c9b538ad799e5a60012bf7602ca9e.jpg" />
+ <img src="https://i.postimg.cc/X7yd43ZY/Untitled529-20260727115958.png" />
  </a>
 
  
 
 
 <p align="center">
+all art by cheeriely on tumblr
+</p>
 
 </p>
  
