@@ -22,7 +22,7 @@ please don't copy my ponies nor take any inspo off them ^_^
 </a>
  
 <p align="center">
-<a href="https://pronouns.cc/@rodolfo"/>
+<a href="https://pronouns.cc/@railgun"/>
 — pronouns.cc —
 </a>
 
