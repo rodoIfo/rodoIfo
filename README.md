@@ -40,8 +40,9 @@ please don't copy my ponies nor take any inspo off them ^_^
 
 <p align="center ">
  <a href="https://GitHub.com/pt-hall-of-media">
-  <img src=" https://i.postimg.cc/bNTXGSMg/Untitled537-20260825124357.png">
+  <img src= https://i.postimg.cc/bNTXGSMg/Untitled537-20260825124357.png" width="200" height="130"/>
  </a>
+ 
  <p align="center">
  thank you @pt-hall-of-media
  </p> 
