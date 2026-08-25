@@ -38,6 +38,18 @@ please don't copy my ponies nor take any inspo off them ^_^
 </a>
 
 
+<p align="center ">
+ <a href="https://GitHub.com/pt-hall-of-media">
+  <img src=https://i.postimg.cc/JnyZ9Jwh/Untitled537-20260825123117.png">
+ </a>
+ <p align="center">
+ thank you @pt-hall-of-media
+ </p> 
+
+
+
+
+
 <p align="center">
   <a href="https://github.com/komarev">
     <img src="https://komarev.com/ghpvc/?username=jaxtoy&color=4E25FF&style=flat-square&label=fans">
