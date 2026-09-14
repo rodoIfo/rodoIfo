@@ -32,10 +32,6 @@ please don't copy my ponies nor take any inspo off them ^_^
 — pinterest— 
 </a>
 
-<p align="center">
-<a href="https://guns.lol/rofolfo"/>
-— guns.lol —
-</a>
 
 
 <p align="center ">
