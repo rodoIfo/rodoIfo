@@ -19,7 +19,7 @@ please don't copy my ponies nor take any inspo off them ^_^
 </a>
  
 <p align="center">
-<a href="https://pronouns.cc/@railgun"/>
+<a href="https://pronouns.cc/@zero_one"/>
 — pronouns.cc —
 </a>
 
