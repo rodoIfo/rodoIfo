@@ -1,14 +1,11 @@
 <p align="center">
  <a href="https://github.com/rodoIfo"/>
- <img src="https://i.postimg.cc/X7yd43ZY/Untitled529-20260727115958.png" />
+ <img src="https://media1.tenor.com/m/Iv85ZksWJS8AAAAC/the-living-tombstone-tlt.gif" />
  </a>
-
+picmix not mine
  
 
 
-<p align="center">
-all art by cheeriely on tumblr
-</p>
 
 </p>
  
@@ -34,22 +31,12 @@ please don't copy my ponies nor take any inspo off them ^_^
 
 
 
-<p align="center ">
- <a href="https://GitHub.com/pt-hall-of-media">
-  <img src= https://i.postimg.cc/bNTXGSMg/Untitled537-20260825124357.png" width="200" height="130"/>
- </a>
- 
- <p align="center">
- thank you @pt-hall-of-media
- </p> 
-
-
 
 
 
 <p align="center">
   <a href="https://github.com/komarev">
-    <img src="https://komarev.com/ghpvc/?username=jaxtoy&color=4E25FF&style=flat-square&label=fans">
+    <img src="https://komarev.com/ghpvc/?username=jaxtoy&color=fb9203&style=flat-square&label=fans">
   </a>
 </p>
 
