@@ -14,7 +14,7 @@ please don't copy my ponies nor take any inspo off them ^_^
 </p>
 
 <p align="center">
-<a href="https://solverwitch.straw.page/"/>
+<a href="https://zerust.straw.page/"/>
 — strawpage —
 </a>
  
