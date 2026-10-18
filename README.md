@@ -7,8 +7,10 @@ guy that plays ponytown: hi
 
 
 <p align="center">
-  incase views counter doesn't load i have 6,000 something 
+  incase views counter doesn't load i had 6,000 something 
 </p>
+
+
 
 <p align="center">
   <a href="https://github.com/komarev">
