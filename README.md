@@ -14,7 +14,7 @@ guy that plays ponytown: hi
 
 <p align="center">
   <a href="https://github.com/komarev">
-    <img src="https://komarev.com/ghpvc/?username=jaxtoy&color=lightgrey&label=fans">
+    <img src="https://komarev.com/ghpvc/?username=jaxtoy&color=4B3067&label=fans">
   </a>
 </p>
 
